@@ -1,1 +1,0 @@
-# parkerphilipc.github.io
